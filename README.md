@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pallak-delta2
 - 🌱 currently a student of electric and electronic department 
-- 💞️ I’m looking to collaborate on social projects 
+- 💞️ love to know and aknowledge the new experiences
 - ✨ And exploring the diffrent approches
 - 📫 instagram id-pallakparmar51
 
